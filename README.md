@@ -1,2 +1,2 @@
-# Webkingston-SEO
-Great repository names are short and memorable. Need inspiration? How about congenial-octo-dollop?
+# Webkingston-Promotion
+Great repository names are short and memorable. Need inspiration? How about miniature-lamp?
